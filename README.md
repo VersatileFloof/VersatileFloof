@@ -16,5 +16,48 @@ cus i kinda wanna remove
 that link for something else but idk what 
 it would be 
 
- ever wake up one day only to realize you've been mass produced into plushies...
+
+
+also
+
+
+
+
+ ever wake up one day only to realize you've been transformed into markeable plushies...
+ yeah i love when that happens.
+ ![image](https://github.com/user-attachments/assets/b1271ae5-5584-49e2-b641-8a5e0fc5ef7f)
+ ![image](https://github.com/user-attachments/assets/dfe3dc05-7c93-4dff-9c81-64d544b47972)
+
+
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+.
+
+.
+.
+.
+.
+
+
+
+
+![image](https://github.com/user-attachments/assets/318ee1a9-6bd6-499d-b5b7-ff939ced2301)
+
+okay this was a waste to time i out
 
