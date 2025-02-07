@@ -1,3 +1,6 @@
+hiiii
+*edits for thousandth time*
+
 C+H is always welcome, even when I'm afk.
 I also have a somewhat bad grammer, so- pfft
 if i dont ever respond in public, you can always whisper/dm. i will see it- eventually-
@@ -6,11 +9,12 @@ Don't be surprised if I follow you randomly. You just seemed like a cool person.
 
 !formally known as @/DaPurpleDog. I wanted to change users for a while ^^.) I have a lot of names, but new ppl can call me smudge! 
 
-I'm a teen, furry, griffin otherkin and HollyLeaf(and more )fictionkin. a chaotic bunch....(rabid idiot/hj
+I'm a teen, furry, griffin otherkin and HollyLeaf(and more )fictionkin. a chaotic bunch....(rabid idiotz/hj)
+black, panromantic-demisexual demigirl (useless. i know)
 
 multifandom artist/animator writer, and a wannabe comic and music artist. 
 
-I AM not much of a talker. but a chat is nice
+I AM not much of a talker. but a little chat is always nice
 
 my art style keeps evolving/changing TwT. I'm also known for um- my constant zoomorphism of media characters *sweats* AND PEOPLE SEEM TO NOT LIKE THAT HELP. 
 
@@ -21,24 +25,3 @@ my pateron and pixilart thingyy as sort of a placeholder
 cus i kinda wanna remove 
 that link for something else but idk what 
 it would be 
-
-
-
-also
-
-
-
-DO YOU
- ever wake up one day only to realize you've been transformed into markeable plushies...
- yeah i love when that happens.
- ![image](https://github.com/user-attachments/assets/b1271ae5-5584-49e2-b641-8a5e0fc5ef7f)
- ![image](https://github.com/user-attachments/assets/dfe3dc05-7c93-4dff-9c81-64d544b47972)
-
-.''That's the thing about life Pomni, sometimes you get MASS PRODUCED''-Caine from TADC 
-
-
-
-![image](https://github.com/user-attachments/assets/318ee1a9-6bd6-499d-b5b7-ff939ced2301)
-
-okay this was a waste to time i out
-
