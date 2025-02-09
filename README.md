@@ -25,3 +25,4 @@ my pateron and pixilart thingyy as sort of a placeholder
 cus i kinda wanna remove 
 that link for something else but idk what 
 it would be 
+https://www.patreon.com/c/versatilefloof_pt/about
