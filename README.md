@@ -3,7 +3,7 @@ GitHub Bio remake ig
 
 16 yo/demigirl/panromantic demisexual 
 
-hollyleaf fictionkin (trust) doubles iwc if at all . doubles of other kintypes are alright 
+hollyleaf fictionkin (trust) doubles iwc if at all (i dont know how i feel) . doubles of other kintypes are alright 
 
 if im for any reason in your dni just block me (there's just one possible reason i can think if but yeah) if you interacted first, wh-
 
