@@ -1,7 +1,7 @@
 GitHub Bio remake ig
 
 
-16 yo/demigirl/panromantic demisexual 
+17 yo/demigirl/panromantic demisexual 
 
 hollyleaf fictionkin (trust) doubles iwc if at all (i dont know how i feel) . doubles of other kintypes are alright 
 
