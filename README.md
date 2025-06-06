@@ -1,4 +1,4 @@
-GitHub Bio remake ig
+GitHub Bio remake ig. im sick and tried of haveing to keep traxck of 30 about mes
 
 
 17 yo/demigirl/panromantic demisexual 
