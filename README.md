@@ -3,7 +3,7 @@ GitHub Bio remake ig. im sick and tried of haveing to keep traxck of 30 about me
 
 17 yo/demigirl/panromantic demisexual 
 
- fictionkin/alterhuman, 20+. 6 are facets. constantly undergoing impostor syndrome. 
+ fictionkin/alterhuman, 20+. 6 are facets. constantly undergoing impostor syndrome. (will block anti endos for comfort, should have menteiond)
 
 wifi goes in and out so yeah we may disapear without warning sometimes
 
