@@ -7,7 +7,9 @@ Fear no more stranger! Alow me to introduce myself
 I am namefluid, as I’m am a multiple, most people just call us by display name (Hollyleaf) however there are many cases where Thats not the case :)
 
 She/they/it/pup, bodily 17 year old Demigirl , furry, Alterhuman with too many ocs and kintypes , feel free to ask about them
+
 Median plural made up of mostly Fableings and soulbonds. Using a mix of we and I. We don’t have memory gaps that I but then again how does one remember not remembering (no hate). abd impostor syndrome 24/7 (both)
+
 
 Fan of a wide range of things but my current top favorites are… Dwumrohl- i mean drumroll please!!……. Warrior cats, my singing monsters (could you tell?) Pokémon. Five nights at Freddy’s and the walking dead (when I feel like it) any of these mentioned and I get very excited
 
