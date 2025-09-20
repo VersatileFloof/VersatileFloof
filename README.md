@@ -10,6 +10,8 @@ She/they/it/pup, bodily 17 year old Demigirl , furry, Alterhuman with too many o
 
 Median plural made up of mostly Fableings and soulbonds. Using a mix of we and I. We don’t have memory gaps that I but then again how does one remember not remembering (no hate). abd impostor syndrome 24/7 (both)
 
+https://dash.pluralkit.me/profile/s/yxfcgn?tab=system&view=list
+
 
 Fan of a wide range of things but my current top favorites are… Dwumrohl- i mean drumroll please!!……. Warrior cats, my singing monsters (could you tell?) Pokémon. Five nights at Freddy’s and the walking dead (when I feel like it) any of these mentioned and I get very excited
 
