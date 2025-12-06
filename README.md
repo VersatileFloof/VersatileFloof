@@ -8,7 +8,7 @@ I am namefluid, as I’m am a multiple, most people just call us by display name
 
 She/they/it/pup, bodily 17 year old Demigirl , furry, Alterhuman with too many ocs and kintypes , feel free to ask about them
 
-Median plural made up of mostly Fableings and soulbonds. Using a mix of we and I. We don’t have memory gaps that I but then again how does one remember not remembering (no hate). abd impostor syndrome 24/7 (both)
+Median plural made up of mostly Fableings and soulbonds. Using a mix of we and I. We don’t have memory gaps that I but then again how does one remember not remembering (no hate). abd impostor syndrome 24/7 (both) (only two of them constantly play the game)
 
 https://dash.pluralkit.me/profile/s/yxfcgn?tab=system&view=list
 
