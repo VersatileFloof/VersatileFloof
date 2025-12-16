@@ -15,8 +15,8 @@ pt systems pref dni unless i do first or were freinds (just dont feel like getti
 Fan of a wide range of things but my current top favorites are… Dwumrohl- i mean drumroll please!!……. Warrior cats, my singing monsters (could you tell?) Pokémon. Five nights at Freddy’s and the walking dead (when I feel like it) any of these mentioned and I get very excited
 
 
-
-im usually under the Bakery area chilling with friends. i don't really talk unless you speak first or im just fully warmed up to you . it also depends on if im doing anything else. im a nice person i dont bite (useualy) i promise.  not the best talker so we kinda just chill (unless acknowledged
+.
+im usually under the Bakery area chilling with friends. i don't really talk unless you speak first or im just fully warmed up to you . it also depends on if im doing anything else. im a nice person i dont bite (useualy) i promise.  not the best talker so we kinda just chill (unless acknowledged. i will almost always have this github attacthed to my pony 
 
 im an evesdropper. sorry about that lol
 
