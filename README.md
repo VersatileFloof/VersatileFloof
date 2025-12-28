@@ -10,7 +10,8 @@ She/they/it/pup, bodily 17 year old Demigirl , furry, Alterhuman with too many o
 
 Median collective/sys 
 https://dash.pluralkit.me/profile/s/yxfcgn?tab=system&view=list
-pt systems pref dni unless i do first or were freinds (just dont feel like getting a reality check from yall anti endos im sorry)
+
+
 
 Fan of a wide range of things but my current top favorites are… Dwumrohl- i mean drumroll please!!……. Warrior cats, my singing monsters (could you tell?) Pokémon. Five nights at Freddy’s and the walking dead (when I feel like it) any of these mentioned and I get very excited
 
