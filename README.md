@@ -1,19 +1,22 @@
-GitHub Bio remake ig. im sick and tried of haveing to keep traxck of 30 about mes
+i got sick of everything so i copy paste from my tumblr introoo wircth i copy pasted from da
+hi Im holly, you could call me Floof or Smudge too. I'm a 17 y/o domestic cat living in the Americas. i really like fictional and non fictional creatures
+she/they/it/+neopronouns I don't wanna share here lol .
+pan/demi
+Alterhuman/Furfan
+Bipolar disorder(suspecting) + median/midcontinuum collective
+anthro/animal artist.
+roleplayer (when I feel like it)
+multifandom pixel and digital artist/animator, writer, and a wannabe comic and music artist.
+my art style keeps evolving/changing TwT. been doing this since I could hold a pencil and I love it
+find my writing on quotev! I have original work and fandom stuff! pretty much fixated on building my MSM au tho help me
+were iffy with requests btw, its a hit or miss...
+This is a bit of our little corner of the internet where you will find digital art, animations and shitposts. Ykw. Just mix it! 
+
+fandoms! (Bold is favorite. Italics is newgen/I don’t know mucth about it) | Mlp, TADC, murder drones, BNA, HTTYD. object shows, my ocs bluey(comfort), pokemon anime. Wings of Fire, warriors, Pixie and Brutus (webcomic), eeveelution squad (webcomic). stray dogs. Fnaf games, pokemon games, animal jam, my singing monsters. rain world. incredibox. Cookie run kingdom 
 
 
-Hello, good timezone! You probably came from that silly horse game didn’t ya!
-Fear no more stranger! Alow me to introduce myself
+Basic dni and will freely block if I feel uncomfortable  
 
-I am namefluid, as I’m am a multiple, most people just call us by display name (Hollyleaf) however there are many cases where Thats not the case :)
-
-She/they/it/pup, bodily 17 year old Demigirl , furry, Alterhuman with too many ocs and kintypes , feel free to ask about them
-
-Median collective/sys 
-https://dash.pluralkit.me/profile/s/yxfcgn?tab=system&view=list
-
-
-
-Fan of a wide range of things but my current top favorites are… Dwumrohl- i mean drumroll please!!……. Warrior cats, my singing monsters (could you tell?) Pokémon. Five nights at Freddy’s and the walking dead (when I feel like it) any of these mentioned and I get very excited
 
 
 .
