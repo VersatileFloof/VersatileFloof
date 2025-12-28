@@ -1,18 +1,21 @@
 i got sick of everything so i copy paste from my tumblr introoo wircth i copy pasted from da
+
 hi Im holly, you could call me Floof or Smudge too. I'm a 17 y/o domestic cat living in the Americas. i really like fictional and non fictional creatures
+
 she/they/it/+neopronouns I don't wanna share here lol .
 pan/demi
-Alterhuman/Furfan
-Bipolar disorder(suspecting) + median/midcontinuum collective
-anthro/animal artist.
-roleplayer (when I feel like it)
+
+Alterhuman/Furfan, bipolar disorder(suspecting) + median/midcontinuum collective
+anthro/animal artist. roleplayer (when I feel like it)
+
 multifandom pixel and digital artist/animator, writer, and a wannabe comic and music artist.
 my art style keeps evolving/changing TwT. been doing this since I could hold a pencil and I love it
+
 find my writing on quotev! I have original work and fandom stuff! pretty much fixated on building my MSM au tho help me
 were iffy with requests btw, its a hit or miss...
-This is a bit of our little corner of the internet where you will find digital art, animations and shitposts. Ykw. Just mix it! 
 
-fandoms! (Bold is favorite. Italics is newgen/I don’t know mucth about it) | Mlp, TADC, murder drones, BNA, HTTYD. object shows, my ocs bluey(comfort), pokemon anime. Wings of Fire, warriors, Pixie and Brutus (webcomic), eeveelution squad (webcomic). stray dogs. Fnaf games, pokemon games, animal jam, my singing monsters. rain world. incredibox. Cookie run kingdom 
+
+fandoms! | Mlp, TADC, murder drones, BNA, HTTYD. object shows, my ocs bluey(comfort), pokemon anime. Wings of Fire, warriors, Pixie and Brutus (webcomic), eeveelution squad (webcomic). stray dogs. Fnaf games, pokemon games, animal jam, my singing monsters. rain world. incredibox. Cookie run kingdom 
 
 
 Basic dni and will freely block if I feel uncomfortable  
