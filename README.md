@@ -6,6 +6,7 @@ she/they/it/+neopronouns I don't wanna share here lol .
 pan/demi
 
 Alterhuman/Furfan, bipolar disorder(suspecting) + median/midcontinuum collective
+
 anthro/animal artist. roleplayer (when I feel like it)
 
 multifandom pixel and digital artist/animator, writer, and a wannabe comic and music artist.
