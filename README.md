@@ -22,7 +22,7 @@ Boundaries/Dislikes: basic dni and all that crap blah blah . Dont be a meanie an
 Social medias: @/versatilefloof on tumblr, YouTube and deviant art (that where im mostly active) 
 
 social anxiety. Dispite the fact that we use SOCAIL media
-
+https://pluralkit.xyz/s/yxfcgn
 
 .
 im usually under the Bakery area chilling with friends. i don't really talk unless you speak first or im just fully warmed up to you . it also depends on if im doing anything else. im a nice person i dont bite (useualy) i promise.  not the best talker so we kinda just chill (unless acknowledged. i will almost always have this github attacthed to my pony 
