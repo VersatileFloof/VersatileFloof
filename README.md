@@ -1,4 +1,4 @@
-WELCOME TO FLOOFY OS
+[WELCOME TO FLOOFY OS](https://pluralkit.xyz/s/yxfcgn)
 
 Name(s): holly(leaf) . Smudge. Floof. any kin or facet names 
 
@@ -9,7 +9,7 @@ Pronouns: she/they/it/pup/wub/or anything but he/him
  panromantic demisexual Demigirl and pupgender (unironically. Even though I’m a CAT)  
 therain, 
 fictionkin, 
-trumaendo medpile(median) system. (  https://pluralkit.xyz/s/yxfcgn )
+trumaendo medpile(median) system. 
 Furry 
 
 Fave music:  pop, nerdcore and electronic music (any genre but rap)
