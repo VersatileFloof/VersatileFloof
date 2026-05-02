@@ -1,4 +1,4 @@
-[WELCOME TO FLOOFY OS](https://pluralkit.xyz/s/yxfcgn)
+
 
 Name(s): holly(leaf) . Smudge. Floof. any kin or facet names 
 
@@ -17,7 +17,7 @@ Fave music:  pop, nerdcore and electronic music (any genre but rap)
 Fandoms/Interests/Hobbies!: the furry community/fandom, Mlp, TADC, murder drones, BNA, HTTYD. object shows, bluey(comfort), pokemon anime. Wings of Fire, Wildcraft. warriors, Pixie and Brutus , eeveelution squad . stray dogs. Fnaf games, pokemon games, animal jam, my singing monsters. rain world. incredibox . Cookie run kingdom. PaRappa the rapper  
 the piano (instrument) animation and digital art in general. Song and book writing, zoology 
 
-Boundaries/Dislikes: basic dni and all that crap blah blah . Dont be a meanie and uh. Hollyleaf doubles iwc (permashift + host.  So yeah kinda a strong and important connection) also yeah anti endos leave me alone 
+Boundaries/Dislikes: darkship dni. im neuship but im not a fan of certain tropes . Dont be a meanie and uh. Hollyleaf doubles iwc (permashift + host.  So yeah kinda a strong and important connection) also yeah anti endos leave me alone 
 
 Social medias: @/versatilefloof on tumblr, YouTube and deviant art (that where im mostly active) 
 
