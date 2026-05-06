@@ -19,7 +19,7 @@ the piano (instrument) animation and digital art in general. Song and book writi
 
 Boundaries/Dislikes: darkship dni. im neuship but im not a fan of certain tropes . Dont be a meanie and uh. Hollyleaf doubles iwc (permashift + host.  So yeah kinda a strong and important connection) also yeah anti endos leave me alone 
 
-Social medias: @/versatilefloof on tumblr, YouTube and deviant art (that where im mostly active) 
+Social medias: @/versatilefloof on tumblr and YouTube (that where im mostly active) 
 
 social anxiety. Dispite the fact that we use SOCAIL media
 
