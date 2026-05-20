@@ -1,6 +1,6 @@
 
 
-Name(s): holly(leaf) . Smudge. Floof. any kin or facet names 
+Name(s): holly(leaf). Floof. any kin or facet names 
 
 Age: 05/24/2008
 
@@ -9,7 +9,7 @@ Pronouns: she/they/it/pup/wub/or anything but he/him
  panromantic demisexual Demigirl and pupgender (unironically. Even though I’m a CAT)  
 therain, 
 fictionkin, 
-trumaendo medpile(median) system. 
+ medpile(median) system. (orgin will not be revealed for reasons but if yk good for ya!) 
 Furry 
 
 Fave music:  pop, nerdcore and electronic music (any genre but rap)
@@ -17,7 +17,7 @@ Fave music:  pop, nerdcore and electronic music (any genre but rap)
 Fandoms/Interests/Hobbies!: the furry community/fandom, Mlp, TADC, murder drones, BNA, HTTYD. object shows, bluey(comfort), pokemon anime. Wings of Fire, Wildcraft. warriors, Pixie and Brutus , eeveelution squad . stray dogs. Fnaf games, pokemon games, animal jam, my singing monsters. rain world. incredibox . Cookie run kingdom. PaRappa the rapper  
 the piano (instrument) animation and digital art in general. Song and book writing, zoology 
 
-Boundaries/Dislikes: darkship dni. im neuship but im not a fan of certain tropes . Dont be a meanie and uh. Hollyleaf doubles iwc (permashift + host.  So yeah kinda a strong and important connection) also yeah anti endos leave me alone 
+Boundaries/Dislikes: darkship dni. im neuship but im not a fan of certain tropes . Dont be a meanie and uh. Hollyleaf doubles iwc (permashift + host.  So yeah kinda a strong and important connection) also yeah anti endos leave me alone (pro endo. they arnet hurting anyone, leave them alone (coming from a former anti) 
 
 Social medias: @/versatilefloof on tumblr and YouTube (that where im mostly active) 
 
