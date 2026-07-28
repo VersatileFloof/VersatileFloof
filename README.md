@@ -8,15 +8,6 @@ https://versatilefloof.straw.page/
 
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
-please dni if you make fun of fictonkin and/or systems yall fry my brain/neg (very pro endo. i WAS against the concept. until I met my headmates) 
+im tired. read this if you see it /dir
 
-yes im a scary ass fucking traumaendo, lol. block me i dont care~
-
-someone tell me how to add pictures 
-
-
-⚡️- sorry, what the fuck are you writing 
-
-🍃-im writing shit
-
-⚡️- nevermind
+https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk
