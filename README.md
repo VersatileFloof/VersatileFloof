@@ -9,6 +9,6 @@ https://versatilefloof.straw.page/
 
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
-im tired. read this if you see it /dir
+my personal take on the situation im tired. read this if you see it /dir:
 
 https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk
