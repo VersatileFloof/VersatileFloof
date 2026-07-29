@@ -15,7 +15,8 @@ IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 my personal take on the situation im tired. read this if you see it /dir:
 
 https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk 
-OIP (1).webp
+
+
 
 <img src=1570f4b70d841e6e392002614794.jpg width=250 height=250> <img src=cinderheart_is_jealous_of_the_code_by_cristakes_dlfmupb-pre.png width=250 height=250> 
 
