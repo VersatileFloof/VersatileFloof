@@ -14,8 +14,10 @@ IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
 my personal take on the situation im tired. read this if you see it /dir:
 
-https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk width= 128 height=128>
+https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk 
 
-<img src=1570f4b70d841e6e392002614794.jpg>
+
+<img src=1570f4b70d841e6e392002614794.jpg width= 128 height=128>
+
 I LOVE CINDERHOLLY. PLATONIC (with benefits) YURI GO . (me x my besties (PLATONIC) frfr)
  
