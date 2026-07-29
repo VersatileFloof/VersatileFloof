@@ -2,7 +2,6 @@ a bunch of cats, a musical robot, and a girl and her Pokemon. that pretty much s
 
 oh yeah the werewolf 
 
-<img src=Screenshot2026-07-29162839.png width=250 height=250> <img src=Screenshot2026-07-29162952.png width=250 height=250> 
 
 🍃- strawpage for dni, fandoms and socials 
 pls i moved eveything there! im just gonna type crap here (CRINGE WARNING)
