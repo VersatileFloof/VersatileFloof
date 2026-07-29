@@ -6,7 +6,7 @@ oh yeah the werewolf
 🍃- strawpage for dni, fandoms and socials 
 pls i moved eveything there! im just gonna type crap here (CRINGE WARNING)
 https://versatilefloof.straw.page/
-[](url),,, html: <img src="[url](https://pbs.twimg.com/media/Gbv_kMDWgBQuhPD.jpg:large)"/>
+<img src=https://pbs.twimg.com/media/Gbv_kMDWgBQuhPD.jpg:large/>
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
 my personal take on the situation im tired. read this if you see it /dir:
