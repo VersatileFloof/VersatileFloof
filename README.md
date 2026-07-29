@@ -7,7 +7,7 @@ oh yeah the werewolf
 pls i moved eveything there! im just gonna type crap here (CRINGE WARNING)
 https://versatilefloof.straw.page/
 
-<src=https://pbs.twimg.com/media/Gbv_kMDWgBQuhPD.jpg:large/>
+![](url),,, html:<img src=https://pbs.twimg.com/media/Gbv_kMDWgBQuhPD.jpg:large/>
 
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
