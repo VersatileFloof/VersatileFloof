@@ -20,5 +20,4 @@ https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/
 
 <img src=1570f4b70d841e6e392002614794.jpg width=250 height=250> <img src=cinderheart_is_jealous_of_the_code_by_cristakes_dlfmupb-pre.png width=250 height=250> 
 
-I LOVE CINDERHOLLY. PLATONIC (with benefits) YURI GO . (me x my besties (PLATONIC) frfr)
- 
+I LOVE CINDERHOLLY. PLATONIC (with benefits) YURI GO 
