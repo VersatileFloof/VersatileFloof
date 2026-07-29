@@ -8,7 +8,7 @@ pls i moved eveything there! im just gonna type crap here (CRINGE WARNING)
 https://versatilefloof.straw.page/
 
 
-<img src=2752110bd0f6df58bde40f4c3b378e53.jpg width=250 height=250>
+<img src=2752110bd0f6df58bde40f4c3b378e53.jpg width=250 height=250> <img src=hollyleaf-and-the-fox-cub-d-v0-qkmfovrkq1ua1.webp width=250 height=250>
 
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
