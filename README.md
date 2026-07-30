@@ -1,20 +1,16 @@
-a bunch of cats, a musical robot, and a girl and her Pokemon. that pretty much sums us up 
-
-oh yeah the werewolf 
-
-
-🍃- strawpage for dni, fandoms and socials 
-pls i moved eveything there! im just gonna type crap here (CRINGE WARNING)
-https://versatilefloof.straw.page/
-
-
 <img src=2752110bd0f6df58bde40f4c3b378e53.jpg width=250 height=250> <img src=hollyleaf-and-the-fox-cub-d-v0-qkmfovrkq1ua1.webp width=250 height=250>
+random stuff. im learning how this coding thing works. expect a lot of edits
+
+''traumaendo'' (median) system. i will actually bite you if you try to call us ''fake'' im not kidding. im sick of sysmeds.
+
+i DO, see myself as one person most of the time tho. but its a preference + a side effect of being median
+
+🍃- strawpage has dni, fandoms and socials 
+https://versatilefloof.straw.page/
 
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
-my personal take on the situation im tired. read this if you see it /dir:
-
-https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk 
+in defense of trueeyecoremedkit: https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk 
 
 
 
