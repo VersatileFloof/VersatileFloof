@@ -11,7 +11,7 @@ https://versatilefloof.straw.page/
 
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
-in defense of trueeyecoremedkit: https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk 
+in defense of trueeyecoremedkit: https://docs.google.com/document/d/12l7zF2vqK-dOTAbIh6dO32ma10FDaCxGmO5B4qsyARY/edit?usp=drivesdk (ur welcome :p )
 
 
 
