@@ -2,7 +2,7 @@
 
 random stuff. im learning how this coding thing works. expect a lot of edits
 
-''traumaendo'' medianflux system. questioning some kind if CDD but we welcome all orgins 
+''traumaendo'' medianflux system. questioning some kind  of CDD but we welcome all orgins 
 
 i DO, see myself as one person most of the time tho. but its a preference + a side effect of being median
 
