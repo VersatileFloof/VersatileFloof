@@ -2,7 +2,7 @@
 
 random stuff. im learning how this coding thing works. expect a lot of edits
 
-''traumaendo'' (median) system. i will actually bite you if you try to call us ''fake'' im not kidding. im sick of sysmeds. 
+''traumaendo'' medianflux system. questioning some kind if CDD but we welcome all orgins 
 
 i DO, see myself as one person most of the time tho. but its a preference + a side effect of being median
 
