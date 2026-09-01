@@ -6,6 +6,7 @@ random stuff. im learning how this coding thing works. expect a lot of edits
 
 i DO, see myself as one person most of the time tho. but its a preference + a side effect of being median
 
+removed the doc for now. it got mass reported i thinks
 
 
 🍃- strawpage has dni, fandoms and socials 
@@ -13,4 +14,4 @@ https://versatilefloof.straw.page/
 
 IF YOU SEE A SIMAILAR SKIN WITHOUT THIS ACCOUNT LINKED THATS NOT ANY OF US
 
-(https://docs.google.com/document/d/1V7UlSpy8iwviJBHQuOCmFETESHdOx_cleXqZjclLepo/edit?tab=t.
+
