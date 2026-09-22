@@ -5,3 +5,9 @@ remake soon. please stand by
 https://versatilefloof.straw.page/
 
 
+
+
+
+
+''if i disappeared. would anyone notice?''
+
