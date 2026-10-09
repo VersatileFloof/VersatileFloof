@@ -5,7 +5,7 @@ https://versatilefloof.straw.page/
 
 hello my name is holly (collectively too) i am the current main host of the floofy Operating system, (yeah. Like in computers, FloofyOS for short. )
 
-They/she collectively. Medianflux traumaendo (pro plural/all sys origins! yes im an endo/willo defender FIGHT ME)
+They/she collectively. Medianflux traumaendo (pro plural/all sys origins! yes im an endo/willo defender FIGHT US (OFF ANON YOU SCAREDY CATS)
 
 Catkin, fictive and nonhuman heavy. you can treat us like source, or not, it doesn’t matter (unless someone says otherwise) 
 
